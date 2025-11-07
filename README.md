@@ -1,5 +1,4 @@
-This collection includes:
-- Poster designs  
+This collection includes: 
 - Branding and logo concepts  
 - Digital illustrations  
 - Class and personal projects  
